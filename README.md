@@ -35,7 +35,7 @@
 
 - 📧 Email: aisyaihsan@gmail.com  
 - 💼 [LinkedIn](https://www.linkedin.com/in/aisyaihsan/)  
-- 🌐 [Portfolio](https://) *(add yours here if available)*  
+- 🌐 [Portfolio](https://) *(will update soon)*  
 - 🕹️ [Twitch](https://twitch.tv/syaalise) | [TikTok](https://tiktok.com/@alisavlr) | [GitHub](https://github.com/aisyahihsan)
 
 ---
